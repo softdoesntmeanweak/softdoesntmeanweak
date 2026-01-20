@@ -15,7 +15,6 @@ she/her/they/them for pronouns !
 mostly afk or off-tab doing bullsh- (ㆆ_ㆆ)
           <p align="center">
 hobbies: drawing, crafting, playing games, listening to music, etc.
-⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔
               <p align="center">
                       ⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔
                       <p align="center">  

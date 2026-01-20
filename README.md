@@ -45,7 +45,7 @@ LIMITATIONS/BOUNDARIES (important.)
 <p align="center">
 DNI WITH ME if...
 <p align="center">
-+) you intend to have NSFW content related . i am very aware and please go away . 
++) you intend to have NSFW content related that goes way too far . i am very aware and please go away . 
     <p align="center">
         SEX JOKES OR BEING FREAKY IS OK, JUST KNOW THE LIMIT AND WHEN TO STOP. ദ്ദി◝ ⩊ ◜.ᐟ
 <p align="center">
@@ -55,6 +55,8 @@ please respect all the ships i like. if you cant , you oughta block me or ignore
 <p align="center">
 just in case, im a multishipper and im positive that whatever ship you enjoy, i do too ₍₍⚞(˶˃ ꒳ ˂˶)⚟⁾⁾
 <p align="center"> 
+    +) you are under the age of 13 . 
+     <p align="center">  
 WARNING: i am very sensitive so please mind your words. even the slightest can cut deep. ദ്ദി ༎ຶ‿༎ຶ )
 
 <p align="center"> 

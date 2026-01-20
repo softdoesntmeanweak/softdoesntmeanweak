@@ -38,6 +38,8 @@ LIMITATIONS/BOUNDARIES (important.)
 DNI WITH ME if...
 <p align="center">
 +) you intend to have NSFW content related . i am very aware and please go away . 
+    <p align="center">
+        SEX JOKES OR BEING FREAKY IS OK, JUST KNOW THE LIMIT AND WHEN TO STOP. ദ്ദി◝ ⩊ ◜.ᐟ
 <p align="center">
 +) you ship proships . do i have to explain ?
 <p align="center">

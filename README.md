@@ -22,7 +22,7 @@ hobbies: drawing, crafting, playing games, listening to music, reading, etc.
     <p align="center"> 
         "𝚖𝚢 𝚖𝚒𝚗𝚍 𝚒𝚜 𝚐𝚘𝚒𝚗𝚐 𝚗𝚞𝚖𝚋."
          <p align="center"> 
-           books i suggest: one of us is lying (along with the next 2 episodes), girl on the train, they both die at the end, a good girl's guide to murder
+           books i suggest: one of us is lying (along with the next 2 episodes), the girl on the train, they both die at the end, a good girl's guide to murder
               <p align="center">
                       ⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔
                       <p align="center">  
@@ -64,7 +64,7 @@ THANK YOU FOR READING AND HAVE A LOVELY BEAUTIFUL DAY/NIGHT !!
 
 ![2](https://github.com/user-attachments/assets/b955f588-62b7-48e5-9f4a-b451a2fdb3d7)
   <p align="center">
-  oh chance when will you be mine
+  𝚘𝚑 𝚌𝚑𝚊𝚗𝚌𝚎 𝚠𝚑𝚎𝚗 𝚠𝚒𝚕𝚕 𝚢𝚘𝚞 𝚋𝚎 𝚖𝚒𝚗𝚎
 
 
 

@@ -43,7 +43,7 @@ DNI WITH ME if...
 <p align="center">
 please respect all the ships i like. if you cant , you oughta block me or ignore me. 
 <p align="center">
-just in case, im a multishipper and im positive that whatever ship you enjoy, i do to ₍₍⚞(˶˃ ꒳ ˂˶)⚟⁾⁾
+just in case, im a multishipper and im positive that whatever ship you enjoy, i do too ₍₍⚞(˶˃ ꒳ ˂˶)⚟⁾⁾
 <p align="center"> 
 WARNING: i am very sensitive so please mind your words. even the slightest can cut deep. ദ്ദി ༎ຶ‿༎ຶ )
 

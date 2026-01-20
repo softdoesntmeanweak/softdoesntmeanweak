@@ -14,7 +14,15 @@ she/her/they/them for pronouns !
       <p align="center">
 mostly afk or off-tab doing bullsh- (ㆆ_ㆆ)
           <p align="center">
-hobbies: drawing, crafting, playing games, listening to music, etc.
+hobbies: drawing, crafting, playing games, listening to music, reading, etc.
+              <p align="center">
+                  BONUS!
+<p align="center">
+    song on repeat rn: Falling Faster by Dylan Espeseth 
+    <p align="center"> 
+        "𝚖𝚢 𝚖𝚒𝚗𝚍 𝚒𝚜 𝚐𝚘𝚒𝚗𝚐 𝚗𝚞𝚖𝚋."
+         <p align="center"> 
+           books i suggest: one of us is lying (along with the next 2 episodes), girl on the train, they both die at the end, a good girl's guide to murder
               <p align="center">
                       ⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔
                       <p align="center">  

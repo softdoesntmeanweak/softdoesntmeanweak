@@ -45,7 +45,7 @@ LIMITATIONS/BOUNDARIES (important.)
 <p align="center">
 DNI WITH ME if...
 <p align="center">
-+) you intend to have NSFW content related that goes way too far . i am very aware and please go away . 
++) pedo . or you intend to have NSFW content related that goes way too far (personally dont want to know how you goon or your sexlife). i am very aware and please go away . 
     <p align="center">
         SEX JOKES OR BEING FREAKY IS OK, JUST KNOW THE LIMIT AND WHEN TO STOP. ദ്ദി◝ ⩊ ◜.ᐟ
 <p align="center">

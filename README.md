@@ -43,7 +43,7 @@ artist: Kamwaao on X !!
 <p align="center">
 LIMITATIONS/BOUNDARIES (important.)
 <p align="center">
-DNI WITH ME if...
+DNI if basic dni criteria...
 <p align="center">
 +) pedo . or you intend to have NSFW content related that goes way too far (personally dont want to know how you goon or your sexlife). i am very aware and please go away . 
     <p align="center">

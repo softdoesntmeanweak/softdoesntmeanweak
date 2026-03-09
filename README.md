@@ -18,11 +18,9 @@ hobbies: drawing, crafting, playing games, listening to music, reading, etc.
               <p align="center">
                   BONUS!
 <p align="center">
-    song on repeat rn: Falling Faster by Dylan Espeseth 
-    <p align="center"> 
-        "𝚖𝚢 𝚖𝚒𝚗𝚍 𝚒𝚜 𝚐𝚘𝚒𝚗𝚐 𝚗𝚞𝚖𝚋."
+    song on repeat rn: Creatures in Heaven by Glass Animals
          <p align="center"> 
-           if you like thrillers, i suggest karen m. mcmanus and holly jackson's books! mind-blowing plot TRUST
+           if you like young adult thrillers, i suggest karen m. mcmanus and holly jackson's books! mind-blowing plot TRUST
               <p align="center">
                       ⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔
                       <p align="center">  

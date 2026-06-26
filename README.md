@@ -8,13 +8,11 @@
             BASIC INFO
     </p>
   <p align="center">
-call me kat if you and i are strangers , otherwise i use ivy ᓚ₍ ^. .^₎
+call me kat if you and i are strangers , otherwise i use ivy
     <p align="center">
 she/her/they/them for pronouns !
       <p align="center">
 mostly afk or off-tab btw , slow rep prob
-          <p align="center">
-i love love love drawing hihi
 <p align="center">
     song on repeat rn: Creatures in Heaven by Glass Animals
         <p align="center">
@@ -45,20 +43,11 @@ DNI if basic dni criteria...
 <p align="center">
 please respect all the ships i like. i block freely 
 <p align="center">
-just in case, im a multishipper and im positive that whatever ship you enjoy, i do too ₍₍⚞(˶˃ ꒳ ˂˶)⚟⁾⁾
+just in case, im a multishipper and im positive that whatever ship you enjoy, i do too
 <p align="center"> 
     +) under 13 or older 20 . 
      <p align="center">  
-WARNING: i am very sensitive so please mind your words. even the slightest can cut deep. ദ്ദി ༎ຶ‿༎ຶ )
-
-<p align="center"> 
-⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔
-        <p align="center"> 
-THANK YOU FOR READING AND HAVE A LOVELY BEAUTIFUL DAY/NIGHT !!
-
-![2](https://github.com/user-attachments/assets/b955f588-62b7-48e5-9f4a-b451a2fdb3d7)
-  <p align="center">
-  𝚘𝚑 𝚌𝚑𝚊𝚗𝚌𝚎 𝚠𝚑𝚎𝚗 𝚠𝚒𝚕𝚕 𝚢𝚘𝚞 𝚋𝚎 𝚖𝚒𝚗𝚎
+WARNING: i am very sensitive so please mind your words. even the slightest can cut deep.
 
 
 
